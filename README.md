@@ -1,4 +1,4 @@
-Hello there, I'm sharing my CV.
+Hello there, I'm sharing my final CV.
 
 [https://drive.google.com/file/d/1slBNzG7MfvfYruNN3nZedMV-uMGgTOvz/view?usp=sharing](https://drive.google.com/file/d/1vsVry-il8FkqiX4QTVAj0sZxUVUrQb5q/view?usp=sharing)
 
